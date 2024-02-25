@@ -1,0 +1,2 @@
+# cheats
+all endercheats cheats
